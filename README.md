@@ -1,1 +1,0 @@
-# mansoraakterbithe201040.github.io
